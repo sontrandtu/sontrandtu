@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sontrandtu
-- 👀 I’m interested in coding
+- 👀 I'm interested in family, programming and money
 - 🌱 I’m currently learning in Duy Tan University
-- 💞️ I’m looking to collaborate on android
+- 💞️ I’m looking to collaborate with everyone
 - 📫 Contact me by Email: sontran2k37@gmail.com
 
 <!---
